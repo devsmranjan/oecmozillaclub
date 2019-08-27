@@ -9,4 +9,10 @@ Profiles of all members of oec mozilla club.
 
 --------
 
+### Rohit Kumar Soni
+##### Branch: Computer Science & Engineering
+##### Batch: 2016 - 2020
+
+--------
+
 
