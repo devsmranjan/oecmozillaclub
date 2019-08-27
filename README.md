@@ -14,5 +14,3 @@ Profiles of all members of oec mozilla club.
 ##### Batch: 2016 - 2020
 
 --------
-
-
