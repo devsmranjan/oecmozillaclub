@@ -3,14 +3,8 @@ Profiles of all members of oec mozilla club.
 
 -----------------------------------------
 
-### Smruti Ranjan Rana
+### Mayank Kumar
 ##### Branch: Computer Science & Engineering
-##### Batch: 2016 - 2020
-
---------
-
-### Rohit Kumar Soni
-##### Branch: Computer Science & Engineering
-##### Batch: 2016 - 2020
+##### Batch: 2018 - 2022
 
 --------
